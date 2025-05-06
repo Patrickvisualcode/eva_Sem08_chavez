@@ -2,7 +2,6 @@
 
 🧯 ¿Qué tipo de conflictos enfrento más seguido? (familiar, académico, emocional, etc.)
 Los conflictos que enfrento más seguido son académicos y personales. Por ejemplo, en la universidad, a veces tengo problemas cuando trabajamos en equipo y no todos se comprometen por igual, o cuando hay falta de comunicación sobre fechas o entregas. También he tenido conflictos familiares, como malentendidos con mis padres cuando no entienden que estoy muy ocupado con la escuela o con proyectos, y eso genera discusiones por temas de tiempo o responsabilidades en casa.
-
 Además, a veces tengo conflictos emocionales conmigo mismo, como cuando me frustro porque las cosas no me salen como quiero, o siento que no estoy avanzando lo suficiente.🗯️ ¿Cómo suelo reaccionar? ¿Me callo, exploto, evado...?
 Mayormente suelo callarme o evitar el conflicto. Me cuesta expresar lo que siento en el momento, especialmente si hay tensión. Prefiero muchas veces evitar discusiones para no empeorar la situación. A veces aguanto mucho hasta que me siento saturado. No exploto de forma agresiva, pero sí me encierro en mí mismo o me alejo un rato. Con el tiempo he aprendido que eso no siempre ayuda y siempre trato de manejar eso y buscar uan solucion repsirando primero y entiendo la situacion.
 
@@ -29,23 +28,23 @@ Un próximo conflicto donde quiero aplicar estas estrategias es en un proyecto d
 
 -----------------------------------------------------------------------------------
 MI PROTOCOLO DE COMO MANEJAR UN CONFLICTO:
-1. Pausa y respirar
+1. Darme una y respirar
 Antes de responder o actuar, hago una pequeña pausa. Respiro profundo unas 2 o 3 veces para calmarme y no dejarme llevar por la emoción del momento.
 🧠 Objetivo: Evitar una reacción impulsiva de parte mia y poder solucionar pasivamente y en respeto el conflicto
 
-2. Identifica qué estás sintiendo
+2. Identificar qué estás sintiendo
 Me pregunto: ¿Qué siento ahora? ¿Estoy molesto, frustrado, triste, cansado?
 Ponerle nombre a la emoción me ayuda a entenderme mejor.
 ❤️ Objetivo: Reconocer mi estado emocional de ambos lados , tanto el mio como el de la otra persona para asi no mezclarlo con el problema
 
-3. Escucha primero, habla después
+3. Escucha primero, hablar después
 Intento escuchar lo que la otra persona está diciendo sin interrumpir. Luego, cuando me toca hablar, uso frases que empiecen con "yo siento..." o "yo pienso...", en vez de culpar al otro.
 
-4. Busca un punto medio o solución
+4. Buscar un punto medio o solución
 Propongo una alternativa o trato de negociar una solución en la que ambos podamos ceder un poco. Si no se puede en ese momento, pido tiempo para pensarlo y retomarlo después.
 🤝 Objetivo: Resolver el conflicto, no ganarlo.
 
-5. Cierra con respeto y reflexión
+5. Cerrar con respeto y reflexión el conflicto 
 Termino la conversación agradeciendo que se haya podido hablar y, si es necesario, me doy un espacio para reflexionar. Si no se resolvió todo, al menos dejé claro lo que siento y pienso con respeto.
 🌿 Objetivo: Cuidar la relación y aprender para la próxima.
 
